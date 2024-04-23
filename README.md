@@ -1,1 +1,1 @@
-# Click: [jiangbo.github.io](https://jiangboahu.github.io/jiangbo.github.io/)
+# Click: [jiangbo.github.io](https://jiangboahu.github.io/)
